@@ -3,9 +3,8 @@
 >
 ## About me...
 
-My name is ***Sarah Lena De Matos Silva Knell*** alias ***SalenaLuu***, 24 years old & currently living in 📍***Germany***. 
+My name is ***Sarah Lena De Matos Silva Knell*** alias ***SalenaLuu***, 25 years old & currently living in 📍***Germany***. 
 ‍I'm a very motivated person, enjoy working with 🐜teams in a 🎨creative and energetic environment.
-I used to 🔧 work with helicopters 🚁 for the german army.
 
 👀 I always try to improve myself and push my skills forward. I'm 
 curious to learn new technologies.  
